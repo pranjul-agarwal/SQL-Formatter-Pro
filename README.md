@@ -1,0 +1,1 @@
+Link: https://www.linkedin.com/posts/pranjul-agarwal_sql-formatter-pro-chrome-web-store-activity-7300044925432147970-38sE?utm_source=social_share_send&utm_medium=member_desktop_web&rcm=ACoAADgKO0YBFn0Bu-ZqefQhlBO60y-lXyv_mFo
